@@ -2,7 +2,7 @@
 
 ## Cyber Development Discord Server
 
-Link: https://discord.gg/qJnPexas8f
+Link: https://discord.gg/KTwVA8AEMK
 
 ### Description
 
